@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with 无；
 - 💬 Ask me about 所有；
 - 📫 How to reach me: koinl@qq.com；
-- 😄 Pronouns: 宅，累；
+- 😄 Pronouns: 宅；
 - ⚡ Fun fact: 无。
